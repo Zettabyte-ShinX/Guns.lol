@@ -1,6 +1,6 @@
 My servers :
 https://discord.gg/Pe9Bjqx5gQ  -- Community Server
-https://discord.gg/35xegPStwZ  -- Hacx Server join if you are intersted in Roblox hacking
+https://discord.gg/35xegPStwZ  -- Only for educational purposes lua loadstring(https://hacx.com()) join if uk this 
 Copy Link and paste in browser.
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⣼⣿⡄⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
